@@ -1,2 +1,4 @@
-# Bianca-Claudino
-Criando repositório para compartilhar progresso
+Meu nome é Bianca-Claudino
+
+
+acesse meu E-mail 📧
